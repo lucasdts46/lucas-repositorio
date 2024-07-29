@@ -1,1 +1,1 @@
-**seja bem vindo :blue_heart 
+**seja bem vindo: blue_heart 
